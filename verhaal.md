@@ -6,6 +6,12 @@ De Braziliaanse vechter Royce Gracie won de eerste toernooien met zijn Braziliaa
 
 Vanaf de jaren 2000 groeide de UFC uit tot een wereldwijd fenomeen, mede dankzij sterren als Anderson Silva, Conor McGregor en Ronda Rousey. Tegenwoordig is MMA een van de snelst groeiende sporten ter wereld, met miljoenen fans en evenementen in tientallen landen.
 
+
 # Conor McGregor Verhaal
 
 Conor McGregor is een van de bekendste sterren in de geschiedenis van de UFC. De Ierse vechter werd beroemd vanwege zijn snelle knock-outs, flamboyante persoonlijkheid en slimme strategie in de ring. McGregor maakte geschiedenis door als eerste vechter twee UFC-titels tegelijkertijd te houden in verschillende gewichtsklassen, en hij speelde een grote rol in het wereldwijd populair maken van MMA. Zijn carrière laat zien hoe showmanship en vaardigheid samen kunnen komen in de sport.
+
+# Khabib Nurmagomedov
+
+Khabib Nurmagomedov uit Rusland staat bekend als een van de dominantste vechters in de geschiedenis van MMA. Met zijn indrukwekkende worstel- en sambo-achtergrond bleef hij onverslagen gedurende zijn gehele professionele carrière. Khabib werd UFC-kampioen in het lichtgewicht en staat bekend om zijn slimme strategie, discipline en doorzettingsvermogen, waardoor hij een inspiratie is voor vechters en fans over de hele wereld.
+
