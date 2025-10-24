@@ -1,4 +1,4 @@
-MMA Locaties
+# MMA Locaties
 
 1. Verenigde Staten (Las Vegas, Nevada)
 Las Vegas wordt gezien als het hart van de UFC. Hier vonden veel van de grootste gevechten plaats, en het is de thuisbasis van de UFC Apex en T-Mobile Arena. De VS speelde een grote rol in de wereldwijde groei van MMA.

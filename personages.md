@@ -1,4 +1,4 @@
-MMA personages
+# MMA personages
 
 1. Royce Gracie
 Een van de eerste sterren van de UFC. Hij liet in de jaren 1990 zien hoe effectief Braziliaans jiujitsu kon zijn tegen grotere tegenstanders. Zijn successen maakten grondvechten een essentieel onderdeel van MMA.

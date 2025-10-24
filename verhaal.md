@@ -1,4 +1,4 @@
-MMA verhaal
+# MMA verhaal
 
 Mixed Martial Arts (MMA) heeft zijn wortels in oude vechtkunsten, maar de moderne vorm ontstond begin jaren 1990. In 1993 werd de eerste UFC (Ultimate Fighting Championship) georganiseerd in de Verenigde Staten. Het doel was toen om te zien welke vechtstijl – boksen, judo, worstelen of jiujitsu – het effectiefst was in een echt gevecht.
 
